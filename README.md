@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MRmonkeydust
-- 👀 I’m interested in ethical hacking 
+- 👀 I’m interested in getting the dust
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
